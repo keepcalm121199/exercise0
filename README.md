@@ -1,3 +1,3 @@
 # exercise0
-Dannha Rose Israel
-Jeceil John Dagohoy
+Dannha Rose Israel (MAGANDA)
+Jeceil John Dagohoy (GWAPO)
